@@ -1,4 +1,4 @@
-# 
+# Nuevo DaVinci Resolve para PC complementos es el mejor DaVinci Resolve para PC complementos con remapeo de tiempo y soporte de plugins. Seguro, confiable y optimizado para el
 
 
 
